@@ -62,7 +62,8 @@
 <img width="200" height="200" alt="lamp" src="https://github.com/user-attachments/assets/bb0b98e8-8803-434b-8a5e-2ca47eee8a01" />
 <img width="200" height="200" alt="slowdive" src="https://github.com/user-attachments/assets/b49d7623-afe7-4580-9d5b-196335c23f35" />
 <img width="200" height="200" alt="type" src="https://github.com/user-attachments/assets/453f9159-dda3-45de-9b18-613aa12f1eb5" />
-<img width="200" height="200" alt="boa" src="https://github.com/user-attachments/assets/6fb37e27-ca11-415a-a4d7-9bd220264caf" />
+<img width="200" height="200" alt="starflyer" src="https://github.com/user-attachments/assets/bc729c8b-ee93-422c-a352-96480156673d" />
+
 
 
 
