@@ -9,7 +9,8 @@
 </p>
 
 
-<img width="1200" height="645" alt="vvv" src="https://github.com/user-attachments/assets/7571160b-1887-48ed-aa09-bd6ef5763207" />
+<img width="1100" height="630" alt="vvv" src="https://github.com/user-attachments/assets/a2878af5-2643-4652-9964-678a2286d33f" />
+
 
 <p align="center">`` 𝑻𝒐 𝒔𝒆𝒆 𝒂 𝒘𝒐𝒓𝒍𝒅 𝒊𝒏 𝒂 𝒈𝒓𝒂𝒊𝒏 𝒐𝒇 𝒔𝒂𝒏𝒅
 
@@ -54,7 +55,8 @@
 
 
 
-<img width="1200" height="675" alt="vvv2" src="https://github.com/user-attachments/assets/cdf758b6-6263-409f-a805-10bbe62cca75" />
+<img width="1100" height="620" alt="vvvv" src="https://github.com/user-attachments/assets/7f74af5b-7552-49f4-aa47-10d7f07b480a" />
+
 
 
 
