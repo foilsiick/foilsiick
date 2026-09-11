@@ -19,11 +19,9 @@
 
   
 <p align="center">`` 𝑻𝒐 𝒔𝒆𝒆 𝒂 𝒘𝒐𝒓𝒍𝒅 𝒊𝒏 𝒂 𝒈𝒓𝒂𝒊𝒏 𝒐𝒇 𝒔𝒂𝒏𝒅
-
 <p align="center">𝒂𝒏𝒅 𝒂 𝒉𝒆𝒂𝒗𝒆𝒏 𝒊𝒏 𝒂 𝒘𝒊𝒍𝒅 𝒇𝒍𝒐𝒘𝒆𝒓,
 
 <p align="center">𝑯𝒐𝒍𝒅 𝒊𝒏𝒇𝒊𝒏𝒊𝒕𝒚 𝒊𝒏 𝒕𝒉𝒆 𝒑𝒂𝒍𝒎 𝒐𝒇 𝒚𝒐𝒖𝒓 𝒉𝒂𝒏𝒅
-  
 <p align="center">𝒂𝒏𝒅 𝒆𝒕𝒆𝒓𝒏𝒊𝒕𝒚 𝒊𝒏 𝒂𝒏 𝒉𝒐𝒖𝒓. ``
 
 <p align="center">⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
@@ -58,11 +56,6 @@
 
 
 ``(づ> v <)づ♡ ``
-
-
-
-<img width="1100" height="630" alt="yummy" src="https://github.com/user-attachments/assets/0cc5cab3-c3d7-452a-8b91-1be7432e409b" />
-
 
 
 
