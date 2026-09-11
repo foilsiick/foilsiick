@@ -66,7 +66,7 @@
 <img width="200" height="200" alt="slowdive" src="https://github.com/user-attachments/assets/b49d7623-afe7-4580-9d5b-196335c23f35" />
 <img width="200" height="200" alt="type" src="https://github.com/user-attachments/assets/453f9159-dda3-45de-9b18-613aa12f1eb5" />
 <img width="200" height="200" alt="starflyer" src="https://github.com/user-attachments/assets/bc729c8b-ee93-422c-a352-96480156673d" />
-<img width="190" height="200" alt="boaboa" src="https://github.com/user-attachments/assets/3fd0093d-1e37-447b-afda-40690f285718" />
+
 
 
 
