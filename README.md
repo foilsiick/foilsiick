@@ -80,6 +80,6 @@
 
 
 
-<p align="center"><img width="800" height="300" alt="chezburger" src="https://github.com/user-attachments/assets/f4346f5b-e07b-45ca-bb7a-b5efc4a5bbb3" />
+
 <p align="center"><img width="250" height="200" alt="v v v v v" src="https://github.com/user-attachments/assets/61747c20-def7-408f-9d8b-7ce6fc736009" />
 
