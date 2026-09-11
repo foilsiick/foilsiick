@@ -37,7 +37,7 @@
 <p align="center">𝙞𝙢 𝙖𝙢𝙗𝙞𝙫𝙚𝙧𝙩𝙚𝙙 , 𝙖𝙣𝙙 𝙞 𝙡𝙤𝙫𝙚 𝙢𝙖𝙠𝙞𝙣𝙜 𝙣𝙚𝙬 𝙛𝙧𝙞𝙚𝙣𝙙𝙨 !
 
 
-<p align="center">𝗶 𝗮𝗰𝘁𝘂𝗮𝗹𝗹𝘆 𝘂𝗻𝗱𝗲𝗿𝘀𝘁𝗮𝗻𝗱 𝘀𝗮𝗿𝗰𝗮𝘀𝗺, 𝘀𝗼 𝗻𝗼 𝗻𝗲𝗲𝗱 𝘁𝗼 𝘂𝘀𝗲 /𝗷 𝗮𝗿𝗼𝘂𝗻𝗱 𝗺𝗲 ♡. `
+<p align="center"> 𝗻𝗼 𝗻𝗲𝗲𝗱 𝘁𝗼 𝘂𝘀𝗲 𝘁𝗼𝗻𝗲 𝘁𝗮𝗴𝘀 𝗮𝗿𝗼𝘂𝗻𝗱 𝗺𝗲 ♡. `
 
 
 <p align="center">𝙘+𝙝 𝙬𝙚𝙡𝙘𝙤𝙢𝙚𝙙 𝙖𝙣𝙙 𝙝𝙞𝙜𝙝𝙡𝙮 𝙚𝙣𝙘𝙤𝙪𝙧𝙖𝙜𝙚𝙙 𝙖𝙩 𝙖𝙡𝙡 𝙩𝙞𝙢𝙚𝙨
@@ -63,7 +63,7 @@
 <img width="200" height="200" alt="slowdive" src="https://github.com/user-attachments/assets/b49d7623-afe7-4580-9d5b-196335c23f35" />
 <img width="200" height="200" alt="type" src="https://github.com/user-attachments/assets/453f9159-dda3-45de-9b18-613aa12f1eb5" />
 <img width="200" height="200" alt="starflyer" src="https://github.com/user-attachments/assets/bc729c8b-ee93-422c-a352-96480156673d" />
-<img width="190" height="200" alt="boaboa" src="https://github.com/user-attachments/assets/5d0b26bc-5b79-44a5-9724-cf6e405135ed" />
+
 
 
 
