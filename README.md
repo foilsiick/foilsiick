@@ -34,16 +34,13 @@ $${\color{#000000}{𝙞𝙢 \space 𝙢𝙪𝙡𝙩𝙞𝙛𝙖𝙣𝙙𝙤𝙢 
  
 <p align="center">──────────── ୨୧ ────────────
                                                     
-<p align="center">𝙞 𝙙𝙤𝙣𝙩 𝙝𝙖𝙫𝙚 𝙖 𝙙𝙣𝙞 𝙡𝙞𝙨𝙩 , 𝙞 𝙬𝙞𝙡𝙡 𝙛𝙧𝙚𝙚𝙡𝙮 𝙗𝙡𝙤𝙘𝙠. ( 𝙬𝙝𝙞𝙘𝙝 𝙙𝙤𝙚𝙨𝙣𝙩 𝙝𝙖𝙥𝙥𝙚𝙣 𝙤𝙛𝙩𝙚𝙣 𝙨𝙤 𝙙𝙬 )
+<p align="center">$${\color{#854C2E}{𝙞 \space 𝙙𝙤𝙣𝙩 \space 𝙝𝙖𝙫𝙚 \space 𝙖 \space 𝙙𝙣𝙞 \space 𝙡𝙞𝙨𝙩 \space , \space 𝙞 \space 𝙬𝙞𝙡𝙡 \space 𝙛𝙧𝙚𝙚𝙡𝙮 \space 𝙗𝙡𝙤𝙘𝙠. \space ( \space 𝙬𝙝𝙞𝙘𝙝 \space 𝙙𝙤𝙚𝙨𝙣𝙩 \space 𝙝𝙖𝙥𝙥𝙚𝙣 \space \space 𝙤𝙛𝙩𝙚𝙣 \space 𝙨𝙤 \space 𝙙𝙬 \space )}}$$
 
-                                      
-<p align="center">𝙞𝙢 𝙖𝙢𝙗𝙞𝙫𝙚𝙧𝙩𝙚𝙙 , 𝙖𝙣𝙙 𝙞 𝙡𝙤𝙫𝙚 𝙢𝙖𝙠𝙞𝙣𝙜 𝙣𝙚𝙬 𝙛𝙧𝙞𝙚𝙣𝙙𝙨 !
+<p align="center">$${\color{#854C2E}{𝙞𝙢 \space 𝙖𝙢𝙗𝙞𝙫𝙚𝙧𝙩𝙚𝙙 \space , \space 𝙖𝙣𝙙 \space 𝙞 \space 𝙡𝙤𝙫𝙚 \space 𝙢𝙖𝙠𝙞𝙣𝙜 \space 𝙣𝙚𝙬 \space 𝙛𝙧𝙞𝙚𝙣𝙙𝙨 \space !}}$$
 
+<p align="center">$${\color{#854C2E}{𝗻𝗼 \space 𝗻𝗲𝗲𝗱 \space 𝘁𝗼 \space 𝘂𝘀𝗲 \space 𝘁𝗼𝗻𝗲 \space 𝘁𝗮𝗴𝘀 \space 𝗮𝗿𝗼𝘂𝗻𝗱 \space 𝗺𝗲 \space ♡. `}}$$
 
-<p align="center"> 𝗻𝗼 𝗻𝗲𝗲𝗱 𝘁𝗼 𝘂𝘀𝗲 𝘁𝗼𝗻𝗲 𝘁𝗮𝗴𝘀 𝗮𝗿𝗼𝘂𝗻𝗱 𝗺𝗲 ♡. `
-
-
-<p align="center">𝙘+𝙝 𝙬𝙚𝙡𝙘𝙤𝙢𝙚𝙙 𝙖𝙣𝙙 𝙚𝙣𝙘𝙤𝙪𝙧𝙖𝙜𝙚𝙙 𝙖𝙩 𝙖𝙡𝙡 𝙩𝙞𝙢𝙚𝙨
+<p align="center">$${\color{#854C2E}{𝙘+𝙝 \space 𝙬𝙚𝙡𝙘𝙤𝙢𝙚𝙙 \space 𝙖𝙣𝙙 \space 𝙚𝙣𝙘𝙤𝙪𝙧𝙖𝙜𝙚𝙙 \space 𝙖𝙩 \space 𝙖𝙡𝙡 \space 𝙩𝙞𝙢𝙚𝙨}}$$
 
 
 <p align="center"> !! 𝙞𝙛 𝙞 𝙢𝙚𝙨𝙨 𝙪𝙥 𝙮𝙤𝙪𝙧 𝙥𝙧𝙤𝙣𝙤𝙪𝙣𝙨 𝙤𝙧 𝙟𝙪𝙨𝙩 𝙢𝙖𝙠𝙚 𝙮𝙤𝙪 𝙪𝙣𝙘𝙤𝙢𝙛𝙤𝙧𝙩𝙖𝙗𝙡𝙚 𝙞𝙣 𝙖𝙣𝙮 𝙬𝙖𝙮, 𝙥𝙡𝙚𝙖𝙨𝙚 𝙞𝙣𝙛𝙤𝙧𝙢 𝙢𝙚 𝙖𝙣𝙙 𝙩𝙚𝙡𝙡 𝙢𝙚 .
