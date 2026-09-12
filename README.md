@@ -18,35 +18,38 @@
 
 
 
-<p align="center">${\color{#52331C}{`` \space 𝑻𝒐 \space 𝒔𝒆𝒆 \space 𝒂 \space 𝒘𝒐𝒓𝒍𝒅 \space 𝒊𝒏 \space 𝒂 \space 𝒈𝒓𝒂𝒊𝒏 \space 𝒐𝒇 \space 𝒔𝒂𝒏𝒅 \space
+<p align="center">${\color{#704932}{`` \space 𝑻𝒐 \space 𝒔𝒆𝒆 \space 𝒂 \space 𝒘𝒐𝒓𝒍𝒅 \space 𝒊𝒏 \space 𝒂 \space 𝒈𝒓𝒂𝒊𝒏 \space 𝒐𝒇 \space 𝒔𝒂𝒏𝒅 \space
 𝒂𝒏𝒅 \space 𝒂 \space 𝒉𝒆𝒂𝒗𝒆𝒏 \space 𝒊𝒏 \space 𝒂 \space 𝒘𝒊𝒍𝒅 \space 𝒇𝒍𝒐𝒘𝒆𝒓,}}$ 
-<p align="center">$${\color{#52331C}{𝑯𝒐𝒍𝒅 \space 𝒊𝒏𝒇𝒊𝒏𝒊𝒕𝒚 \space 𝒊𝒏 \space 𝒕𝒉𝒆 \space 𝒑𝒂𝒍𝒎 \space 𝒐𝒇 \space 𝒚𝒐𝒖𝒓 \space 𝒉𝒂𝒏𝒅
+<p align="center">$${\color{#704932}{𝑯𝒐𝒍𝒅 \space 𝒊𝒏𝒇𝒊𝒏𝒊𝒕𝒚 \space 𝒊𝒏 \space 𝒕𝒉𝒆 \space 𝒑𝒂𝒍𝒎 \space 𝒐𝒇 \space 𝒚𝒐𝒖𝒓 \space 𝒉𝒂𝒏𝒅
 \space 𝒂𝒏𝒅 \space 𝒆𝒕𝒆𝒓𝒏𝒊𝒕𝒚 \space 𝒊𝒏 \space 𝒂𝒏 \space 𝒉𝒐𝒖𝒓. \space ``}}$$
 
 <p align="center">$${\color{#474747}{⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘}}$$
 
- $${\color{#000000}{𝙢𝙮 \space 𝙣𝙖𝙢𝙚 \space 𝙞𝙨 \space 𝙎𝙖𝙬𝙚𝙣. \space ( \space 𝙥𝙧𝙤𝙣𝙤𝙪𝙣𝙘𝙚𝙙 \space 𝙡𝙞𝙠𝙚 \space 𝙨𝙖𝙖𝙖-𝙬𝙝𝙚𝙣 )}}$$
+ $${\color{#4D2E22}{𝙢𝙮 \space 𝙣𝙖𝙢𝙚 \space 𝙞𝙨 \space 𝙎𝙖𝙬𝙚𝙣. \space ( \space 𝙥𝙧𝙤𝙣𝙤𝙪𝙣𝙘𝙚𝙙 \space 𝙡𝙞𝙠𝙚 \space 𝙨𝙖𝙖𝙖-𝙬𝙝𝙚𝙣 )}}$$
 
-$${\color{#000000}{𝗝𝗮𝗻 \space 𝟳𝘁𝗵 \space 𝟮𝟬𝟬𝟴}}$$
+$${\color{#4D2E22}{𝗝𝗮𝗻 \space 𝟳𝘁𝗵 \space 𝟮𝟬𝟬𝟴}}$$
 
-$${\color{#000000}{𝙞𝙢 \space 𝙢𝙪𝙡𝙩𝙞𝙛𝙖𝙣𝙙𝙤𝙢 }}$$
+$${\color{#4D2E22}{𝙞𝙢 \space 𝙢𝙪𝙡𝙩𝙞𝙛𝙖𝙣𝙙𝙤𝙢 }}$$
 
  
-<p align="center">──────────── ୨୧ ────────────
+<p align="center">$${\color{#9E9E9E}{──────────── ୨୧ ────────────}}$$
                                                     
-<p align="center">$${\color{#854C2E}{𝙞 \space 𝙙𝙤𝙣𝙩 \space 𝙝𝙖𝙫𝙚 \space 𝙖 \space 𝙙𝙣𝙞 \space 𝙡𝙞𝙨𝙩 \space , \space 𝙞 \space 𝙬𝙞𝙡𝙡 \space 𝙛𝙧𝙚𝙚𝙡𝙮 \space 𝙗𝙡𝙤𝙘𝙠. \space ( \space 𝙬𝙝𝙞𝙘𝙝 \space 𝙙𝙤𝙚𝙨𝙣𝙩 \space 𝙝𝙖𝙥𝙥𝙚𝙣 \space \space 𝙤𝙛𝙩𝙚𝙣 \space 𝙨𝙤 \space 𝙙𝙬 \space )}}$$
+<p align="center">$${\color{#2E1A15}{𝙞 \space 𝙙𝙤𝙣𝙩 \space 𝙝𝙖𝙫𝙚 \space 𝙖 \space 𝙙𝙣𝙞 \space 𝙡𝙞𝙨𝙩 \space , \space 𝙞 \space 𝙬𝙞𝙡𝙡 \space 𝙛𝙧𝙚𝙚𝙡𝙮 \space 𝙗𝙡𝙤𝙘𝙠. \space ( \space 𝙬𝙝𝙞𝙘𝙝 \space 𝙙𝙤𝙚𝙨𝙣𝙩 \space 𝙝𝙖𝙥𝙥𝙚𝙣 \space \space 𝙤𝙛𝙩𝙚𝙣 \space 𝙨𝙤 \space 𝙙𝙬 \space )}}$$
 
-<p align="center">$${\color{#854C2E}{𝙞𝙢 \space 𝙖𝙢𝙗𝙞𝙫𝙚𝙧𝙩𝙚𝙙 \space , \space 𝙖𝙣𝙙 \space 𝙞 \space 𝙡𝙤𝙫𝙚 \space 𝙢𝙖𝙠𝙞𝙣𝙜 \space 𝙣𝙚𝙬 \space 𝙛𝙧𝙞𝙚𝙣𝙙𝙨 \space !}}$$
+<p align="center">$${\color{#2E1A15}{𝙞𝙢 \space 𝙖𝙢𝙗𝙞𝙫𝙚𝙧𝙩𝙚𝙙 \space , \space 𝙖𝙣𝙙 \space 𝙞 \space 𝙡𝙤𝙫𝙚 \space 𝙢𝙖𝙠𝙞𝙣𝙜 \space 𝙣𝙚𝙬 \space 𝙛𝙧𝙞𝙚𝙣𝙙𝙨 \space !}}$$
 
-<p align="center">$${\color{#854C2E}{𝗻𝗼 \space 𝗻𝗲𝗲𝗱 \space 𝘁𝗼 \space 𝘂𝘀𝗲 \space 𝘁𝗼𝗻𝗲 \space 𝘁𝗮𝗴𝘀 \space 𝗮𝗿𝗼𝘂𝗻𝗱 \space 𝗺𝗲 \space ♡. `}}$$
+<p align="center">$${\color{#2E1A15}{𝗻𝗼 \space 𝗻𝗲𝗲𝗱 \space 𝘁𝗼 \space 𝘂𝘀𝗲 \space 𝘁𝗼𝗻𝗲 \space 𝘁𝗮𝗴𝘀 \space 𝗮𝗿𝗼𝘂𝗻𝗱 \space 𝗺𝗲 \space ♡. `}}$$
 
-<p align="center">$${\color{#854C2E}{𝙘+𝙝 \space 𝙬𝙚𝙡𝙘𝙤𝙢𝙚𝙙 \space 𝙖𝙣𝙙 \space 𝙚𝙣𝙘𝙤𝙪𝙧𝙖𝙜𝙚𝙙 \space 𝙖𝙩 \space 𝙖𝙡𝙡 \space 𝙩𝙞𝙢𝙚𝙨}}$$
+<p align="center">$${\color{#2E1A15}{𝙘+𝙝 \space 𝙬𝙚𝙡𝙘𝙤𝙢𝙚𝙙 \space 𝙖𝙣𝙙 \space 𝙚𝙣𝙘𝙤𝙪𝙧𝙖𝙜𝙚𝙙 \space 𝙖𝙩 \space 𝙖𝙡𝙡 \space 𝙩𝙞𝙢𝙚𝙨}}$$
+
+
+<p align="center">$${\color{#9E9E9E}{──────────── ୨୧ ────────────}}$$
 
 
 <p align="center"> !! 𝙞𝙛 𝙞 𝙢𝙚𝙨𝙨 𝙪𝙥 𝙮𝙤𝙪𝙧 𝙥𝙧𝙤𝙣𝙤𝙪𝙣𝙨 𝙤𝙧 𝙟𝙪𝙨𝙩 𝙢𝙖𝙠𝙚 𝙮𝙤𝙪 𝙪𝙣𝙘𝙤𝙢𝙛𝙤𝙧𝙩𝙖𝙗𝙡𝙚 𝙞𝙣 𝙖𝙣𝙮 𝙬𝙖𝙮, 𝙥𝙡𝙚𝙖𝙨𝙚 𝙞𝙣𝙛𝙤𝙧𝙢 𝙢𝙚 𝙖𝙣𝙙 𝙩𝙚𝙡𝙡 𝙢𝙚 .
 
 
-<p align="center">──────────── ୨୧ ────────────
+
 
 
 ``(づ> v <)づ♡ ``
