@@ -15,8 +15,6 @@
 
 
 
-<p align="center">$${\color{#474747}{⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘}}$$
-
 
 
   
@@ -31,7 +29,8 @@
 
 
 
-<p align="center">$${\color{#474747}{⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘}}$$
+<img width="2048" height="327" alt="poop" src="https://github.com/user-attachments/assets/8dc476d9-5112-4c86-98d2-153f7927ce36" />
+
 
  $${\color{#5E3929}{𝙢𝙮 \space 𝙣𝙖𝙢𝙚 \space 𝙞𝙨 \space 𝙎𝙖𝙬𝙚𝙣. \space ( \space 𝙥𝙧𝙤𝙣𝙤𝙪𝙣𝙘𝙚𝙙 \space 𝙡𝙞𝙠𝙚 \space 𝙨𝙖𝙖𝙖-𝙬𝙝𝙚𝙣 )}}$$
 
