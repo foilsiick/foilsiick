@@ -27,9 +27,10 @@
 
 <p align="center"><img <img width="100" height="100" alt="awwww" src="https://github.com/user-attachments/assets/3002dec3-34b8-4944-9a6e-98fc6bd609ba" />
 
+<img width="1600" height="120" alt="1111" src="https://github.com/user-attachments/assets/8d207253-7fc8-485f-8e85-4a55a1d55b80" />
 
 
-<img width="2048" height="327" alt="poop" src="https://github.com/user-attachments/assets/8dc476d9-5112-4c86-98d2-153f7927ce36" />
+
 
 
  $${\color{#5E3929}{𝙢𝙮 \space 𝙣𝙖𝙢𝙚 \space 𝙞𝙨 \space 𝙎𝙖𝙬𝙚𝙣. \space ( \space 𝙥𝙧𝙤𝙣𝙤𝙪𝙣𝙘𝙚𝙙 \space 𝙡𝙞𝙠𝙚 \space 𝙨𝙖𝙖𝙖-𝙬𝙝𝙚𝙣 )}}$$
@@ -57,9 +58,8 @@ $${\color{#5E3929}{𝙞𝙢 \space 𝙢𝙪𝙡𝙩𝙞𝙛𝙖𝙣𝙙𝙤𝙢 
 
 
 
+<img width="1600" height="120" alt="2222" src="https://github.com/user-attachments/assets/7e41c5cf-fc89-44c2-b157-ae6ed48f9335" />
 
-
-``(づ> v <)づ♡ ``
 
 
 
