@@ -9,7 +9,8 @@
 </p>
 
 
-<img width="1100" height="630" alt="yum yum" src="https://github.com/user-attachments/assets/49bd4a38-80c7-487f-844b-086d4b00cafd" />
+<p align="center"><img width="400" height="224" alt="ok pls" src="https://github.com/user-attachments/assets/96eab8be-6887-436c-90e8-afc36585bc88" />
+
 
 
 
