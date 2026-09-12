@@ -27,7 +27,8 @@
 \space 𝒂𝒏𝒅 \space 𝒆𝒕𝒆𝒓𝒏𝒊𝒕𝒚 \space 𝒊𝒏 \space 𝒂𝒏 \space 𝒉𝒐𝒖𝒓. \space ``}}$$
 
 
-<p align="center"><img width="300" height="300" alt="ugh" src="https://github.com/user-attachments/assets/64cd45d4-eb69-4629-bec7-87dfb7cd5b9f" />
+<p align="center"><img <img width="250" height="250" alt="awwww" src="https://github.com/user-attachments/assets/3002dec3-34b8-4944-9a6e-98fc6bd609ba" />
+
 
 
 <p align="center">$${\color{#474747}{⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘}}$$
