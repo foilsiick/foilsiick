@@ -12,17 +12,16 @@
 <img width="1100" height="630" alt="yum yum" src="https://github.com/user-attachments/assets/49bd4a38-80c7-487f-844b-086d4b00cafd" />
 
 
+
+
 <p align="center">⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
 
 
-
-  
-<p align="center">`` 𝑻𝒐 𝒔𝒆𝒆 𝒂 𝒘𝒐𝒓𝒍𝒅 𝒊𝒏 𝒂 𝒈𝒓𝒂𝒊𝒏 𝒐𝒇 𝒔𝒂𝒏𝒅
-<p align="center">𝒂𝒏𝒅 𝒂 𝒉𝒆𝒂𝒗𝒆𝒏 𝒊𝒏 𝒂 𝒘𝒊𝒍𝒅 𝒇𝒍𝒐𝒘𝒆𝒓,
-
-<p align="center">𝑯𝒐𝒍𝒅 𝒊𝒏𝒇𝒊𝒏𝒊𝒕𝒚 𝒊𝒏 𝒕𝒉𝒆 𝒑𝒂𝒍𝒎 𝒐𝒇 𝒚𝒐𝒖𝒓 𝒉𝒂𝒏𝒅
-<p align="center">𝒂𝒏𝒅 𝒆𝒕𝒆𝒓𝒏𝒊𝒕𝒚 𝒊𝒏 𝒂𝒏 𝒉𝒐𝒖𝒓. ``
+<p align="center">${\color{#52331C}{`` \space 𝑻𝒐 \space 𝒔𝒆𝒆 \space 𝒂 \space 𝒘𝒐𝒓𝒍𝒅 \space 𝒊𝒏 \space 𝒂 \space 𝒈𝒓𝒂𝒊𝒏 \space 𝒐𝒇 \space 𝒔𝒂𝒏𝒅 \space
+𝒂𝒏𝒅 \space 𝒂 \space 𝒉𝒆𝒂𝒗𝒆𝒏 \space 𝒊𝒏 \space 𝒂 \space 𝒘𝒊𝒍𝒅 \space 𝒇𝒍𝒐𝒘𝒆𝒓,}}$ 
+<p align="center">$${\color{#52331C}{𝑯𝒐𝒍𝒅 \space 𝒊𝒏𝒇𝒊𝒏𝒊𝒕𝒚 \space 𝒊𝒏 \space 𝒕𝒉𝒆 \space 𝒑𝒂𝒍𝒎 \space 𝒐𝒇 \space 𝒚𝒐𝒖𝒓 \space 𝒉𝒂𝒏𝒅
+\space 𝒂𝒏𝒅 \space 𝒆𝒕𝒆𝒓𝒏𝒊𝒕𝒚 \space 𝒊𝒏 \space 𝒂𝒏 \space 𝒉𝒐𝒖𝒓. \space ``}}$$
 
 <p align="center">⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
