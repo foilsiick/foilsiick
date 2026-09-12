@@ -33,11 +33,11 @@
 
 <p align="center">$${\color{#474747}{⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘}}$$
 
- $${\color{#4D2E22}{𝙢𝙮 \space 𝙣𝙖𝙢𝙚 \space 𝙞𝙨 \space 𝙎𝙖𝙬𝙚𝙣. \space ( \space 𝙥𝙧𝙤𝙣𝙤𝙪𝙣𝙘𝙚𝙙 \space 𝙡𝙞𝙠𝙚 \space 𝙨𝙖𝙖𝙖-𝙬𝙝𝙚𝙣 )}}$$
+ $${\color{#5E3929}{𝙢𝙮 \space 𝙣𝙖𝙢𝙚 \space 𝙞𝙨 \space 𝙎𝙖𝙬𝙚𝙣. \space ( \space 𝙥𝙧𝙤𝙣𝙤𝙪𝙣𝙘𝙚𝙙 \space 𝙡𝙞𝙠𝙚 \space 𝙨𝙖𝙖𝙖-𝙬𝙝𝙚𝙣 )}}$$
 
-$${\color{#4D2E22}{𝗝𝗮𝗻 \space 𝟳𝘁𝗵 \space 𝟮𝟬𝟬𝟴}}$$
+$${\color{#5E3929}{𝗝𝗮𝗻 \space 𝟳𝘁𝗵 \space 𝟮𝟬𝟬𝟴}}$$
 
-$${\color{#4D2E22}{𝙞𝙢 \space 𝙢𝙪𝙡𝙩𝙞𝙛𝙖𝙣𝙙𝙤𝙢 }}$$
+$${\color{#5E3929}{𝙞𝙢 \space 𝙢𝙪𝙡𝙩𝙞𝙛𝙖𝙣𝙙𝙤𝙢 }}$$
 
  
 <p align="center">$${\color{#9E9E9E}{──────────── ୨୧ ────────────}}$$
