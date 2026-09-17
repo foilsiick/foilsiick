@@ -9,7 +9,9 @@
 </p>
 
 
-<p align="center"><img width="400" height="224" alt="ok pls" src="https://github.com/user-attachments/assets/96eab8be-6887-436c-90e8-afc36585bc88" />
+<p align="center"><img width="400" height="224" alt="v gif 3" src="https://github.com/user-attachments/assets/66d42513-33e3-4a9e-8e2a-a05f5d4221ce" />
+
+
 
 
 
