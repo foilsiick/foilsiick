@@ -1,79 +1,85 @@
+</div>
+
+<img src="https://github.com/user-attachments/assets/3d584c0b-68e6-4abe-aeec-804679b9fa2b"  width="400" align="left"> 
+
+<div align="center">
+
+<img width="400" height="70" alt="tumblr_db122460338ff20b71570666fb43a385_b00283cc_1280" src="https://github.com/user-attachments/assets/7269f8c6-e706-48bf-bc0e-03cbeaede938" />
+<br>
+<br>
+
+· · ─────── ·𖥸· ─────── · ·
+
+✿‧̥  𓈒 ϱ 　Sawen,　She/Her
 
 
+𓎟𓎟𓎟　 ݁ 　ৎ ݂ ݁　<img width="25" height="25" alt="image_2026-09-21_221746748" src="https://github.com/user-attachments/assets/e174e427-3c13-4656-8f2d-3e0504dc7c8f" />
+゛　  ִ 　　♥︎̼̻ ͟ ͟ ͟ 
 
+.   ࣪   ♡‌ㅤ۪ㅤ Jan　7　2008 ㅤ۪ㅤ♡‌  ࣪ .
 
-<p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=317nabzcuebljwwvnz5kkdy3zaa4&cover_image=true&theme=novatorem&show_offline=false&background_color=29211d&interchange=false&profanity=false&hide_remaster=false&bar_color=69523a&bar_color_cover=false">
-  </a>
-</p>
+· · ─────── ·𖥸· ─────── · ·
 
+˚　　   ✦ 　　   .　　. 　 ˚　.  　　 ✦⠀.   　˚　　   ✦　  .   　˚
+<br>
+<br>
+<img width="400" height="40" alt="tumblr_dd7d24994a7e5955783dc50581b72fde_541ab8c8_1280" src="https://github.com/user-attachments/assets/a2960d47-d91f-4d51-8084-a8dbc7753883" />
 
-<p align="center"><img width="415" height="224" alt="hello" src="https://github.com/user-attachments/assets/5ddfa831-abe7-40a0-bfe2-0531e74870f0" />
+</div>
 
+<br>
+<br>
+<img src="https://github.com/user-attachments/assets/9763c917-7234-4ddb-b6c4-8a8730eb00f9"  width="400" align="right"> 
 
+<br>
+<br>
+<div align="center">
+<img width="405" height="45" alt="image_2026-09-21_223617384" src="https://github.com/user-attachments/assets/9e8169d6-aeb8-4f7b-8d03-f3f18c4c37ec" />
+<br>
+<br>
+˚　　   ✦ 　　   .　　. 　 ˚　.  　　 ✦⠀.   　˚　　   ✦　  .   　˚
+<br>
+<br>
 
-
-
-
-
-
-
-
-  
-
-<p align="center">${\color{#704932}{`` \space 𝑻𝒐 \space 𝒔𝒆𝒆 \space 𝒂 \space 𝒘𝒐𝒓𝒍𝒅 \space 𝒊𝒏 \space 𝒂 \space 𝒈𝒓𝒂𝒊𝒏 \space 𝒐𝒇 \space 𝒔𝒂𝒏𝒅 \space
-𝒂𝒏𝒅 \space 𝒂 \space 𝒉𝒆𝒂𝒗𝒆𝒏 \space 𝒊𝒏 \space 𝒂 \space 𝒘𝒊𝒍𝒅 \space 𝒇𝒍𝒐𝒘𝒆𝒓,}}$ 
-<p align="center">$${\color{#704932}{𝑯𝒐𝒍𝒅 \space 𝒊𝒏𝒇𝒊𝒏𝒊𝒕𝒚 \space 𝒊𝒏 \space 𝒕𝒉𝒆 \space 𝒑𝒂𝒍𝒎 \space 𝒐𝒇 \space 𝒚𝒐𝒖𝒓 \space 𝒉𝒂𝒏𝒅
-\space 𝒂𝒏𝒅 \space 𝒆𝒕𝒆𝒓𝒏𝒊𝒕𝒚 \space 𝒊𝒏 \space 𝒂𝒏 \space 𝒉𝒐𝒖𝒓. \space ``}}$$
-
-
-<p align="center"><img <img width="100" height="100" alt="awwww" src="https://github.com/user-attachments/assets/3002dec3-34b8-4944-9a6e-98fc6bd609ba" />
-
-<img width="1600" height="120" alt="1111" src="https://github.com/user-attachments/assets/8d207253-7fc8-485f-8e85-4a55a1d55b80" />
-
-
-
-
-
- $${\color{#5E3929}{𝙢𝙮 \space 𝙣𝙖𝙢𝙚 \space 𝙞𝙨 \space 𝙎𝙖𝙬𝙚𝙣. \space ( \space 𝙥𝙧𝙤𝙣𝙤𝙪𝙣𝙘𝙚𝙙 \space 𝙡𝙞𝙠𝙚 \space 𝙨𝙖𝙖𝙖-𝙬𝙝𝙚𝙣 )}}$$
-
-$${\color{#5E3929}{𝗝𝗮𝗻 \space 𝟳𝘁𝗵 \space 𝟮𝟬𝟬𝟴}}$$
-
-$${\color{#5E3929}{𝙞𝙢 \space 𝙢𝙪𝙡𝙩𝙞𝙛𝙖𝙣𝙙𝙤𝙢 }}$$
+ 　೨౿　 Multifandom　𓏲𝄢　𓈒
+  <br>
+<br>
+no dni / i will freely block  𓈒　?
+ <br>
 
  
-<p align="center">$${\color{#9E9E9E}{──────────── ୨୧ ────────────}}$$
-                                                    
-<p align="center">$${\color{#40231D}{𝙞 \space 𝙙𝙤𝙣𝙩 \space 𝙝𝙖𝙫𝙚 \space 𝙖 \space 𝙙𝙣𝙞 \space 𝙡𝙞𝙨𝙩 \space , \space 𝙞 \space 𝙬𝙞𝙡𝙡 \space 𝙛𝙧𝙚𝙚𝙡𝙮 \space 𝙗𝙡𝙤𝙘𝙠. \space ( \space 𝙬𝙝𝙞𝙘𝙝 \space 𝙙𝙤𝙚𝙨𝙣𝙩 \space 𝙝𝙖𝙥𝙥𝙚𝙣 \space \space 𝙤𝙛𝙩𝙚𝙣 \space 𝙨𝙤 \space 𝙙𝙬 \space )}}$$
-
-<p align="center">$${\color{#40231D}{𝙞𝙢 \space 𝙖𝙢𝙗𝙞𝙫𝙚𝙧𝙩𝙚𝙙 \space , \space 𝙖𝙣𝙙 \space 𝙞 \space 𝙡𝙤𝙫𝙚 \space 𝙢𝙖𝙠𝙞𝙣𝙜 \space 𝙣𝙚𝙬 \space 𝙛𝙧𝙞𝙚𝙣𝙙𝙨 \space !}}$$
-
-<p align="center">$${\color{#40231D}{𝗻𝗼 \space 𝗻𝗲𝗲𝗱 \space 𝘁𝗼 \space 𝘂𝘀𝗲 \space 𝘁𝗼𝗻𝗲 \space 𝘁𝗮𝗴𝘀 \space 𝗮𝗿𝗼𝘂𝗻𝗱 \space 𝗺𝗲 \space ♡. `}}$$
-
-<p align="center">$${\color{#40231D}{𝙘+𝙝 \space 𝙬𝙚𝙡𝙘𝙤𝙢𝙚𝙙 \space 𝙖𝙣𝙙 \space 𝙚𝙣𝙘𝙤𝙪𝙧𝙖𝙜𝙚𝙙 \space 𝙖𝙩 \space 𝙖𝙡𝙡 \space 𝙩𝙞𝙢𝙚𝙨}}$$
-
-
-<p align="center">$${\color{#9E9E9E}{──────────── ୨୧ ────────────}}$$
-
-
-<p align="center"> $${\color{#9E7878}{!! \space 𝙞𝙛 \space 𝙞 \space 𝙢𝙚𝙨𝙨 \space 𝙪𝙥 \space 𝙮𝙤𝙪𝙧 \space 𝙥𝙧𝙤𝙣𝙤𝙪𝙣𝙨 \space 𝙤𝙧 \space 𝙟𝙪𝙨𝙩 \space 𝙢𝙖𝙠𝙚 \space 𝙮𝙤𝙪 \space 𝙪𝙣𝙘𝙤𝙢𝙛𝙤𝙧𝙩𝙖𝙗𝙡𝙚 \space 𝙞𝙣 \space 𝙖𝙣𝙮 \space 𝙬𝙖𝙮, \space 𝙥𝙡𝙚𝙖𝙨𝙚 \space 𝙞𝙣𝙛𝙤𝙧𝙢 \space 𝙖𝙣𝙙 \space 𝙩𝙚𝙡𝙡 \space 𝙢𝙚 \space .}}$$
+𓎟𓎟𓎟　 ݁ 　ৎ ݂ ݁　<img width="25" height="25" alt="tumblr_eb556af0b1ed39e3648e98a8d4920ca5_b311d98c_400" src="https://github.com/user-attachments/assets/589dc58e-1d17-465c-aa6b-d31514d219c4" />
+゛　  ִ 　　♥︎̼̻ ͟ ͟ ͟ 
+  <br>
+  <br>
+♡.‘ Ambiverted / No need to use tone tags  (*ᴗ͈ˬᴗ͈) 
+<br>
+ <br>
+c + h welcomed and encouraged at all times
+<br>
+ <br>
+<img width="400" height="40" alt="image_2026-09-21_230335605" src="https://github.com/user-attachments/assets/81e385a8-087b-4e85-8c5a-bdd29f8b92b8" />
 
 
+</div>
+
+<div align="center">
+ 
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=29&duration=4000&pause=20&color=EFF7F19A&center=true&vCenter=true&width=435&lines=%F0%9D%91%B0+%F0%9D%92%89%F0%9D%92%82%F0%9D%92%97%F0%9D%92%86+%F0%9D%92%8F%F0%9D%92%90+%F0%9D%92%8F%F0%9D%92%82%F0%9D%92%8E%F0%9D%92%86;%F0%9D%91%B0+%F0%9D%92%82%F0%9D%92%8E+%F0%9D%92%83%F0%9D%92%96%F0%9D%92%95+%F0%9D%92%95%F0%9D%92%98%F0%9D%92%90+%F0%9D%92%85%F0%9D%92%82%F0%9D%92%9A%F0%9D%92%94+%F0%9D%92%90%F0%9D%92%8D%F0%9D%92%85%E2%80%94;%F0%9D%91%BE%F0%9D%92%89%F0%9D%92%82%F0%9D%92%95+%F0%9D%92%94%F0%9D%92%89%F0%9D%92%82%F0%9D%92%8D%F0%9D%92%8D+%F0%9D%91%B0+%F0%9D%92%84%F0%9D%92%82%F0%9D%92%8D%F0%9D%92%8D+%F0%9D%92%95%F0%9D%92%89%F0%9D%92%86%F0%9D%92%86%3F;%F0%9D%91%B1%F0%9D%92%90%F0%9D%92%9A+%F0%9D%92%8A%F0%9D%92%94+%F0%9D%92%8E%F0%9D%92%9A+%F0%9D%92%8F%F0%9D%92%82%F0%9D%92%8E%F0%9D%92%86%2C%E2%80%94;%F0%9D%91%BA%F0%9D%92%98%F0%9D%92%86%F0%9D%92%86%F0%9D%92%95+%F0%9D%92%8B%F0%9D%92%90%F0%9D%92%9A+%F0%9D%92%83%F0%9D%92%86%F0%9D%92%87%F0%9D%92%82%F0%9D%92%8D%F0%9D%92%8D+%F0%9D%92%95%F0%9D%92%89%F0%9D%92%86%F0%9D%92%86!" alt="Typing SVG" /></a>
+<br>
+ <br>
+<img width="900" height="271" alt="Untitled69_20260921205954" src="https://github.com/user-attachments/assets/86bf8b59-6903-42ad-aaf0-47217b647d43" />
 
 
-
-
-<p align="center"><img width="99" height="56" alt="v1" src="https://github.com/user-attachments/assets/34566986-844e-4c25-964b-088ee54a861c" /><img width="99" height="56" alt="v2" src="https://github.com/user-attachments/assets/5e97b9c0-48f6-48be-b742-45611eac836f" />
-
-
-
-
+<div/>
 
 
 
 
 
 
-<p align="center"><img width="250" height="200" alt="v v v v v" src="https://github.com/user-attachments/assets/61747c20-def7-408f-9d8b-7ce6fc736009" />
+
+
+
+
 
