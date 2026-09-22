@@ -10,7 +10,7 @@
 
 · · ─────── ·𖥸· ─────── · ·
 
-✿‧̥  𓈒 ϱ 　Sawen,　She/Her
+✿‧̥  𓈒 ϱ 　sawen,　she/Her
 
 
 𓎟𓎟𓎟　 ݁ 　ৎ ݂ ݁　<img width="25" height="25" alt="image_2026-09-21_221746748" src="https://github.com/user-attachments/assets/e174e427-3c13-4656-8f2d-3e0504dc7c8f" />
@@ -41,7 +41,7 @@
 <br>
 <br>
 
- 　೨౿　 Multifandom　𓏲𝄢　𓈒
+ 　೨౿　 multifandom　𓏲𝄢　𓈒
   <br>
 <br>
 no dni / i will freely block  𓈒　?
@@ -52,7 +52,7 @@ no dni / i will freely block  𓈒　?
 ゛　  ִ 　　♥︎̼̻ ͟ ͟ ͟ 
   <br>
   <br>
-♡.‘ Ambiverted / No need to use tone tags  (*ᴗ͈ˬᴗ͈) 
+♡.‘ ambiverted / no need to use tone tags  (*ᴗ͈ˬᴗ͈) 
 <br>
  <br>
 c + h welcomed and encouraged at all times
