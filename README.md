@@ -16,7 +16,7 @@
 𓎟𓎟𓎟　 ݁ 　ৎ ݂ ݁　<img width="25" height="25" alt="image_2026-09-21_221746748" src="https://github.com/user-attachments/assets/e174e427-3c13-4656-8f2d-3e0504dc7c8f" />
 ゛　  ִ 　　♥︎̼̻ ͟ ͟ ͟ 
 
-.   ࣪   ♡‌ㅤ۪ㅤ Jan　7　2008 ㅤ۪ㅤ♡‌  ࣪ .
+.   ࣪   ♡‌ㅤ۪ㅤ Jan　7th　2008 ㅤ۪ㅤ♡‌  ࣪ .
 
 · · ─────── ·𖥸· ─────── · ·
 
